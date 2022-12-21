@@ -11,3 +11,7 @@
 [week-10](https://docs.google.com/presentation/d/1k63iB9azj-K-XOo0K3tFuJ66d0jAn9V0Uj8RC-OZYVk/edit?usp=sharing)<br>
 [week-11](https://docs.google.com/presentation/d/16WzEbct1GH0GBv-RX04sA0MMhPNVFcGdnMXwqU8NCCU/edit?usp=sharing)<br>
 [week-12](https://docs.google.com/presentation/d/1RfsmD-LqVSq4yBH8bRNsNTRj24IJS-4_AzeOIbrfxE4/edit?usp=sharing)<br>
+[week-13](https://docs.google.com/presentation/d/1ilBQgJLkcUDjq2lyvJYeW9obmtJ0LTMJSlBJF1qxL6M/edit?usp=sharing)
+<br>
+[week-14](https://docs.google.com/presentation/d/1-iVTVrurufiN4Biv2BVjey36rllCZa9FJ9SS1BCKRAs/edit?usp=sharing)
+<br>
